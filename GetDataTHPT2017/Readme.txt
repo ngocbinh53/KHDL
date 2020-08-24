@@ -1,0 +1,1 @@
+Dữ liệu khong có sẵn nên bạn có thể vui lòng tìm và tải dữ liệu điểm của các tỉnh thành rồi bỏ vô thư mục này.
